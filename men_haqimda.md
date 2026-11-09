@@ -1,1 +1,1 @@
-Salom dasturchilar
+Salom talabalar
